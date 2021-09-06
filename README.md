@@ -1,0 +1,5 @@
+- 👋 Hola, yo soy @TheRichGG
+- 👀 Estoy interesado en la tecnologia y la ciencia
+- 🌱 Actualmente estoy estudiando ciencias de la computación
+- 💞️ Estoy buscando colaborar en la criptografia cuantica
+- 📫 Puedes encontrarme como @TheRichGG en redes sociales
